@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with jujutsu shenanigans new Scripts, featuring auto-collect and auto-heal. Download now to dominate every match with ease and confidence, thanks
 
 
 
